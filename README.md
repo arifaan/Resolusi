@@ -1,0 +1,2 @@
+# Resolusi
+Repositori planing kedepan
